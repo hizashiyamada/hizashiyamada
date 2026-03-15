@@ -5,7 +5,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀　 　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) . ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀　 　⠀⠀⠀⠀⠀⠀⠀⠀⠀　 　　⠀⠀⠀⠀　⠀⠀[main](https://github.com/riddledbatz)⠀⠀⠀⠀⠀![tumblr_f6ac2059766480f8e795e2ff937c1b72_edc5634c_75](https://github.com/user-attachments/assets/ad5a8f49-41d9-4438-ba6b-e337186a074f)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀　 　⠀⠀⠀⠀⠀⠀⠀⠀⠀　 　　⠀⠀⠀⠀　⠀⠀[straw](https://hizashiyamadaa.straw.page/)⠀⠀⠀⠀⠀![tumblr_f6ac2059766480f8e795e2ff937c1b72_edc5634c_75](https://github.com/user-attachments/assets/ad5a8f49-41d9-4438-ba6b-e337186a074f)
 ⠀⠀⠀⠀⠀⠀[atabook](https://riddledbatz.atabook.org/) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
