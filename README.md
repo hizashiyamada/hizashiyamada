@@ -12,6 +12,8 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀　     𝗙𝗔𝗡𝗗𝗢𝗠 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 𝗙𝗥𝗘𝗘𝗟𝗬 !! 𝗔𝗟𝗪𝗔𝗬𝗦 𝗖*𝗛  !! 𝗜 𝗟𝗢𝗢𝗩𝗘𝗘𝗘 𝗘𝗩𝗘𝗥𝗬𝗢𝗢𝗡𝗡𝗘𝗘 ! 𝗽𝗽𝗹𝗲𝗮𝘀𝗲 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝗮𝘁 𝗮𝗹𝗹 𝘁𝗶𝗺𝗲𝘀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀
 
+⠀⠀⠀⠀⠀⠀⠀⠀　  ⠀⠀⠀⠀⠀⠀⠀⠀　  IF YOU ARE UNDER 15-16 .  I MAY  NOT INTERACT  !!! NO HARD FEELIINGGSSSS  
+
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="562" height="28" alt="image" src="https://github.com/user-attachments/assets/efbdccc0-604a-4612-a88b-711622069026" />
 ⠀⠀⠀⠀
 
