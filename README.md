@@ -1,6 +1,6 @@
-⠀⠀　 ⠀⠀⠀⠀　 　⠀⠀　 ⠀ ⠀  <img width="562" height="476" alt="image" src="https://raw.githubusercontent.com/hizashiyamada/hizashiyamada/refs/heads/main/Untitled617_20260315101412.webp" />
+⠀⠀　 ⠀⠀⠀⠀　 　⠀⠀　 ⠀ ⠀  <img width="960" height="600" alt="image" src="https://raw.githubusercontent.com/hizashiyamada/hizashiyamada/refs/heads/main/Untitled617_20260315101412.webp" />
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="562" height="28" alt="image" src="https://github.com/user-attachments/assets/efbdccc0-604a-4612-a88b-711622069026" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="973" height="28" alt="image" src="https://github.com/user-attachments/assets/efbdccc0-604a-4612-a88b-711622069026" />
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀　 　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) . ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀
 
@@ -14,6 +14,6 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀　  ⠀⠀⠀⠀⠀⠀⠀⠀　  IF YOU ARE UNDER 15-16 .  I MAY  NOT INTERACT  !!! NO HARD FEELIINGGSSSS  
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="562" height="28" alt="image" src="https://github.com/user-attachments/assets/efbdccc0-604a-4612-a88b-711622069026" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="973" height="28" alt="image" src="https://github.com/user-attachments/assets/efbdccc0-604a-4612-a88b-711622069026" />
 ⠀⠀⠀⠀
 
